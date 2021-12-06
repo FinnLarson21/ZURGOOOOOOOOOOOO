@@ -1,3 +1,6 @@
 # ZURGOOOOOOOOOOOO
 Zurgo Deck
-THis is a primer to spite Sebydoodle 
+This is a primer to spite Sebydoodle 
+
+Link to Decklist 
+https://github.com/TheWalkigDude/ZURGOOOOOOOOOOOO/blob/main/Zurgo%20Decklist
